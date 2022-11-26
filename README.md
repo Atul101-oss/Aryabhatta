@@ -1,2 +1,3 @@
 # Aryabhatta
-startup in 1 yr
+Some wrk in 1 yr of clg for practice and improve myself
+
